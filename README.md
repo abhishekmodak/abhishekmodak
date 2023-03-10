@@ -20,7 +20,7 @@ A passionate software engineer and trainer from India.<br>
 I am currently learning chatbot development.<br>
 I am looking to collaborte on Python based Web Application.<br>
 Ask me about Software Development, We based application, Python.<br>
-Reach me through email at amoda8282@gmaiil.com.<br>
+Reach me through email at amoda828@gmaiil.com.<br>
 Pronouns: He/Him.<br>
 
 
